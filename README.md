@@ -1,15 +1,15 @@
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=A69B7F&label=^w^+++"/>
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=B78347&label=^w^+++"/>
 <img src="https://files.catbox.moe/rnuxfy.png">
 <p align="center">
-   <br> ${\textsf{\color{#A69B7F}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#B78347}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br>
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
-     <br> ${\textsf{\color{#A99563}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#B97534}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
-   ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#9C7237}Shadowvanilla Lover :3 .}}$ 
+   ——————————⟣⠀ ⠀⟢——————————
+         <br> ${\textsf{\color{#853D25} oh god how disgusting  .}}$ 
  <br>
   </p>
 
