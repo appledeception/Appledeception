@@ -1,6 +1,9 @@
 <p align="center"> 
     <p align="center">
 <img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=B78347&label=^w^+++"/>
+        <br> ${\textsf{\color{#853D25} I hope we see each other again  .}}$ 
+ <br>
+        <br> ${\textsf{\color{#B97534} right?...}}$
 <img src="https://files.catbox.moe/rnuxfy.png">
 <p align="center">
    <br> ${\textsf{\color{#B78347}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
