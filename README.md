@@ -8,7 +8,7 @@
 <p align="center">
    <br> ${\textsf{\color{#B78347}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br>
-  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
+  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/FoolsUmbra">alt account</a>　　⟢——
      <br> ${\textsf{\color{#B97534}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ ⠀⟢——————————
