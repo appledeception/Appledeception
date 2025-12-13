@@ -1,6 +1,6 @@
 <p align="center">
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Lies%20%E2%99%A1&extraCount=6565&color=f30179&labelColor=DB8683"/></a>
-<img src="https://files.catbox.moe/4iaakj.webp">
+<img src="https://files.catbox.moe/ydri9b.webp">
 <img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=DB8683&label=Espresso+++"/>  
 <p align="center">
     <img src="https://files.catbox.moe/w2pw28.png">
