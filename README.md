@@ -1,8 +1,7 @@
 <p align="center">
 <a href="https://hits.sh/github.com/dailyvanilla/hit/"><img alt="Éxitos" src="https://hits.sh/github.com/dailyvanilla/hit.svg?label=Honey%20%E2%99%A1&extraCount=7335&color=7C988F&labelColor=EBDAC6"/></a>
 <img src="https://files.catbox.moe/ydri9b.webp">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=DB8683&label=Espresso+++"/>  
-<p align="center">
+<a href="https://hits.sh/github.com/dailyvanilla/hit/"><img alt="Hits" src="https://hits.sh/github.com/dailyvanilla/hit.svg?label=Truth%20%E2%99%A1&extraCount=7562&color=CDAC78&labelColor=EBDAC6"/></a>
     <img src="https://files.catbox.moe/w2pw28.png">
     <p align="center">
    <br> ${\textsf{\color{#EBDAC6}heaven　　she /　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
