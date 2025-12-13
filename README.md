@@ -5,13 +5,13 @@
 <p align="center">
     <img src="https://files.catbox.moe/w2pw28.png">
     <p align="center">
-   <br> ${\textsf{\color{#E7E8EA}heaven　　she /　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#EBDAC6}heaven　　she /　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://espressolove.straw.page">strawpage</a>　　　　<a href="https://milkcrowns.carrd.co">card</a>　　　　<a href="https://github.com/milkcrowns">alt account</a>　　⟢——
-     <br> ${\textsf{\color{#F30179}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#7C988F}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://linktr.ee/Espressolove">linktree</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#3D648E}INFP-T <3.}}$ 
+         <br> ${\textsf{\color{#CB8F5D}INFP-T <3.}}$ 
  <br>
   </p>
 
