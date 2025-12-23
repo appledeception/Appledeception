@@ -6,7 +6,7 @@
     <p align="center">
    <br> ${\textsf{\color{#EBDAC6}heaven　　she /　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
-  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://espressolove.straw.page">strawpage</a>　　　　<a href="https://milkcrowns.carrd.co">card</a>　　　　<a href="https://github.com/milkcrowns">alt account</a>　　⟢——
+  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://dailyvanilla.straw.page">strawpage</a>　　　　<a href="https://milkcrowns.carrd.co">card</a>　　　　<a href="https://github.com/milkcrowns">alt account</a>　　⟢——
      <br> ${\textsf{\color{#7C988F}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://linktr.ee/Espressolove">linktree</a> ⠀⟢——————————
